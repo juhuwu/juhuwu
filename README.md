@@ -3,4 +3,4 @@
 
 I'm a wizard of the electronic age. Coding for making fun shit.
 
-For contact or any questions email me at `juhu@shitposting.expert`. I wanna separate my real life from the online  world!
+For contact or any questions email me at `juhu@shitposting.expert`, Discord: `juhu#2091`
