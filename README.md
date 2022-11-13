@@ -3,4 +3,4 @@
 
 I'm a wizard of the electronic age. Coding for making fun shit.
 
-For contact or any questions email me at `juhu@shitposting.expert`, Discord: `juhu#2091`
+For contact or any questions email me at `juhu@shitposting.expert`
